@@ -1,1 +1,1 @@
-Toàn bọ là bọ
+Toàn bọ là bọ.🐞
